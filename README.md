@@ -1,2 +1,2 @@
 # hartrd.github.io
-My personal blog
+Please Enjoy!
